@@ -1,1 +1,2 @@
 sembarang
+yang penting belajar
